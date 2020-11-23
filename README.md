@@ -1,2 +1,1 @@
-# Header H1
-Personal Website soon to come !🤓
+# Personal Website soon to come !🤓
